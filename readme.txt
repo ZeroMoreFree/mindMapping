@@ -1,0 +1,1 @@
+This is a mindMapping I made from my reading notes, which I share with you here
